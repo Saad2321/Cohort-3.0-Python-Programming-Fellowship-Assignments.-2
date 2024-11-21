@@ -5,3 +5,6 @@ Alhamdulillah
 I successfully created my GitHub and Medium Account 
 I shared my accounts link via the goggle link provide by ArewaDS
 
+## Kano
+### Kaduna
+
